@@ -2,7 +2,7 @@
 layout: post
 title: I've been here before...
 description: This is older journal post. Unedited. The word Alhamdulillah is my expression of total gratitude that I am feeling. My feelings in this post is being lost and confused. This was agitating me so I just became grateful.
-tags: [raw]
+tags: [raw, old]
 ---
 
 I’ve been here before…
