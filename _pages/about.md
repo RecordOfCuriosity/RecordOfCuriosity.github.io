@@ -29,9 +29,9 @@ My third goal is fitness-based. I want to rebuild my athleticism and develop an 
 
 ## Record of Curiosity Brand
 
-[.](https://twitter.com/RecordCuriosity)
+[.](https://twitter.com/RecordCuriosity)Follow me on Twitter!
 
-[.](https://www.youtube.com/@RecordOfCuriosity)
+[.](https://www.youtube.com/@RecordOfCuriosity)Subscribe to me on Youtube!
 
 
 
